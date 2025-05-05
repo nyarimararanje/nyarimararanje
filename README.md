@@ -4,7 +4,7 @@
 📈 Business Minor<br/>
 💻 I create websites, apps, and software that I find intriguing<br/>
 📊 I am articulate, confident, and  a planner - your next PM really!!!<br/>
-😂 Fun fact: (Not funny haha) I can name all the countries in the world
+😂 I love writing poetry. here is my website: https://closedlet.wordpress.com/blog-2/ 
 
 
 # 💻 Tech Stack:
